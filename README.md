@@ -2,7 +2,8 @@
 我们已开启全节点解锁Netflix、TVB、动画疯和0倍率节点，欢迎使用。
 
 ### 官网
-https://free.ms.nbqyep.com
+
+https://moo.pet/0jt8c
 
 ### 价格
 每月24G流量  
